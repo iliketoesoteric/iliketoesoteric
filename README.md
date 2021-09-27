@@ -1,0 +1,1 @@
+Yo wassup, this is Tejveer. I'm a highschool student currently in grade 11. I like programming and coming up with weird features in programming languages. But in general, I like learning anything as long as it's cool!
